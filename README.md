@@ -1,1 +1,1 @@
-eduforduniversity.epizy.com
+http://eduforduniversity.epizy.com
